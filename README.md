@@ -1,18 +1,18 @@
-   ♡.°₊ ˎˊ˗ ✴︎𓊆 OLIVER FICTION-KIN    𓊇˳✧༚ ✴︎- .°₊ ˎˊ ♡.
+   ♡.°₊ ˎˊ˗ 🧼 𓊆 OLIVER FICTION-KIN    𓊇˳✧༚ ✴︎- .°₊ ˎˊ ♡.
    
-  ⋆⑅♪⸝⸝ Normally a jerk to people, but most of my rude stuff said are JOKES!!  ⋆⑅♪⸝⸝
+ 🧼  ⋆⑅♪⸝⸝ Normally a jerk to people, but most of my rude stuff said are JOKES!!  ⋆⑅♪⸝⸝
   
-   ⋆⑅♪⸝⸝ Free to INT unless otherwise said. 
+   🧼 ⋆⑅♪⸝⸝ Free to INT unless otherwise said. 
    
-   ⋆⑅♪⸝⸝  Mainly I do not care if you get near me, just make sure your my friend first.
+  🧼  ⋆⑅♪⸝⸝  Mainly I do not care if you get near me, just make sure your my friend first.
    
 -----
 
- ⋆⑅♪⸝⸝ I do not take hints, please tell me if your uncomfortable.
+🧼  ⋆⑅♪⸝⸝ I do not take hints, please tell me if your uncomfortable.
   
-  ⑅♪⸝⸝ I do NOT ship. (Unless friend!
+ 🧼  ⑅♪⸝⸝ I do NOT ship. (Unless friend!)
   
-  ⋆⑅♪⸝⸝ I have freaky/adult humor.
+  🧼 ⋆⑅♪⸝⸝ I have freaky/adult humor.
 
 ------
 
@@ -20,9 +20,9 @@
 
 -----
 
- ⋆⑅♪⸝⸝ I am a MINOR, any sexual things said could be an joke, but do not do it to me. 
+🧼  ⋆⑅♪⸝⸝ I am a MINOR, any sexual things said could be an joke, but do not do it to me. 
 
-  ⋆⑅♪⸝⸝ Semi-Artist, Moderator of 5 different ponytown parties.
+ 🧼 ⋆⑅♪⸝⸝ Semi-Artist, Moderator of 5 different ponytown parties.
 
  
 

@@ -6,7 +6,9 @@
    
    ⋆⑅♪⸝⸝  Mainly I do not care if you get near me, just make sure your my friend first.
    
-  ⋆⑅♪⸝⸝ I do NOT care if you find anything I say offensive unless its something serious.
+-----
+
+ ⋆⑅♪⸝⸝ I do not take hints, please tell me if your uncomfortable.
   
   ⑅♪⸝⸝ I do NOT ship. (Unless friend!
   

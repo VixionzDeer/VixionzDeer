@@ -16,7 +16,9 @@
 
 ------
 
-<img width="541" height="372" alt="boo get out" src="https://github.com/user-attachments/assets/8b01d508-81a3-4d75-8871-868adf3fccdc" />
+<img width="736" height="736" alt="Oliver Background and PFP" src="https://github.com/user-attachments/assets/6eac5db3-e19f-467e-b2ca-84a141892388" />
+
+🧼 Art isn't mine !
 
 -----
 

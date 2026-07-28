@@ -26,8 +26,7 @@
 
  🧼 ⋆⑅♪⸝⸝ Semi-Artist, Moderator of 5 different ponytown parties.
 
- 
-
+ ⋆⑅♪⸝⸝ Discord is Sillysilliers, only for friends.
                       
 
               

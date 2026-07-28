@@ -26,8 +26,13 @@
 
  🧼 ⋆⑅♪⸝⸝ Semi-Artist, Moderator of 5 different ponytown parties.
 
- ⋆⑅♪⸝⸝ Discord is Sillysilliers, only for friends.
-                      
+ 🧼 ⋆⑅♪⸝⸝ Discord is Sillysilliers, only for friends.
+ 
+ 🧼 ⋆⑅♪⸝⸝ I miss my lice./j
+
+ 🧼 ⋆⑅♪⸝⸝ DNI if ; Dandys world (Qwel fucking sucks.), Problematic fandoms, ADHD sensory room.
+
+ 🧼 ⋆⑅♪⸝⸝ Int ; FPE, Let him go, Frskn (IWEC).
 
               
                           

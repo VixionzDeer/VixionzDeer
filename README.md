@@ -24,12 +24,10 @@
 
 🧼  ⋆⑅♪⸝⸝ I am a MINOR, any sexual things said could be an joke, but do not do it to me. 
 
- 🧼 ⋆⑅♪⸝⸝ Semi-Artist, Moderator of 5 different ponytown parties.
+ 🧼 ⋆⑅♪⸝⸝ Semi-Artist, Moderator of 5 different ponytown parties. (Including roleplays discords.).
 
  🧼 ⋆⑅♪⸝⸝ Discord is Sillysilliers, only for friends.
  
- 🧼 ⋆⑅♪⸝⸝ I miss my lice./j
-
  🧼 ⋆⑅♪⸝⸝ DNI if ; Dandys world (Qwel fucking sucks.), Problematic fandoms, ADHD sensory room.
 
  🧼 ⋆⑅♪⸝⸝ Int ; FPE, Let him go, Frskn (IWEC).

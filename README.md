@@ -4,7 +4,9 @@
   
    🧼 ⋆⑅♪⸝⸝ Free to INT unless otherwise said. 
    
-  🧼  ⋆⑅♪⸝⸝  Mainly I do not care if you get near me, just make sure your my friend first.
+  🧼  ⋆⑅♪⸝⸝  Mainly I do not care if you get near me, just make sure your my friend first before sitting with me.
+
+   🧼  ⋆⑅♪⸝⸝  Most of me being rude is just my humor, I'm passive aggressive.
    
 -----
 

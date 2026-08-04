@@ -1,4 +1,7 @@
    ♡.°₊ ˎˊ˗ 🧼 𓊆 OLIVER FICTION-KIN    𓊇˳✧༚ ✴︎- .°₊ ˎˊ ♡.
+
+   ---
+                                            GitHub is direct towards ponytown only, not Roblox.
    
  🧼  ⋆⑅♪⸝⸝ Normally a jerk to people, but most of my rude stuff said are JOKES!!  ⋆⑅♪⸝⸝
   

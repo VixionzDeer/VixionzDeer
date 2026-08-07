@@ -1,5 +1,8 @@
    ♡.°₊ ˎˊ˗ 🧼 𓊆 OLIVER FICTION-KIN    𓊇˳✧༚ ✴︎- .°₊ ˎˊ ♡.
 
+    Status ; Alive but unwell.
+    Rank ; Submarine Major.
+
 ---
    
                                           GitHub is direct towards ponytown only, not Roblox.

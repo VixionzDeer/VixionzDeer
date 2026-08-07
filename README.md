@@ -2,6 +2,8 @@
 
     Status ; Alive but unwell.
     Rank ; Submarine Major.
+    Name ; Simon/Oliver
+    Current ; Unsafe.
 
 ---
    

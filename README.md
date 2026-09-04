@@ -30,6 +30,11 @@
   
 
    🧼  ⋆⑅♪⸝⸝  Most of me being rude is just my humor, I'm passive aggressive.
+
+----
+
+<img width="300" height="342" alt="bit my ass" src="https://github.com/user-attachments/assets/bccfa397-466f-4429-bf2c-cd2f962ed9c8" />
+
    
 -----
 
@@ -40,11 +45,6 @@
  
   
   ⋆⑅♪⸝⸝ I have freaky/adult humor.
-
-------
-
-<img width="300" height="342" alt="bit my ass" src="https://github.com/user-attachments/assets/bccfa397-466f-4429-bf2c-cd2f962ed9c8" />
-
 
 -----
 

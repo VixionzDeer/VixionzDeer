@@ -43,9 +43,8 @@
 
 ------
 
-<img width="736" height="736" alt="Oliver Background and PFP" src="https://github.com/user-attachments/assets/6eac5db3-e19f-467e-b2ca-84a141892388" />
+<img width="300" height="342" alt="bit my ass" src="https://github.com/user-attachments/assets/bccfa397-466f-4429-bf2c-cd2f962ed9c8" />
 
- ⋆⑅♪⸝⸝ Art isn't mine !
 
 -----
 

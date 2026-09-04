@@ -1,4 +1,14 @@
-   ♡.°₊ ˎˊ˗ 🧼 𓊆 OLIVER FICTION-KIN    𓊇˳✧༚ ✴︎- .°₊ ˎˊ ♡.
+
+♡.°₊ ˎˊ˗ 🧼 𓊆 OLIVER FICTION-KIN    𓊇˳✧༚ ✴︎- .°₊ ˎˊ ♡.
+
+---
+
+♡.° DNI PERSONALLY !! ₊ ˎˊ˗
+ ˎˊ˗ Dandys world
+ ˎˊ˗ Forsaken (IWEC, NOT FULLY DNI)
+ ˎˊ˗ Problematic/Sexual fandoms.
+ ˎˊ˗ HH/HB
+ ♡.° ˎˊ˗ If you are in ANY of these fandoms, please stay the fuck away from me.
 
 ---
    
@@ -40,13 +50,7 @@
  🧼 ⋆⑅♪⸝⸝ Semi-Artist, Moderator of 5 different ponytown parties. (Including roleplays discords.).
  
 
- 🧼 ⋆⑅♪⸝⸝ Discord is Sillysilliers, only for friends.
- 
- 
- 🧼 ⋆⑅♪⸝⸝ DNI if ; Dandys world (Qwel fucking sucks.), Problematic fandoms, ADHD sensory room. 
- 
-
- 🧼 ⋆⑅♪⸝⸝ Int ; FPE, Let him go, Frskn (IWEC).
+ Discord is Sillysilliers, only for friends.
 
               
                           

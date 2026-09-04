@@ -4,10 +4,15 @@
 ---
 
 ♡.° DNI PERSONALLY !! ₊ ˎˊ˗
+
  ˎˊ˗ Dandys world
+ 
  ˎˊ˗ Forsaken (IWEC, NOT FULLY DNI)
+ 
  ˎˊ˗ Problematic/Sexual fandoms.
+ 
  ˎˊ˗ HH/HB
+ 
  ♡.° ˎˊ˗ If you are in ANY of these fandoms, please stay the fuck away from me.
 
 ---

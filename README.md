@@ -33,13 +33,13 @@
    
 -----
 
-🧼  ⋆⑅♪⸝⸝ I do not take hints, please tell me if your uncomfortable.
+ ⋆⑅♪⸝⸝ I do not take hints, please tell me if your uncomfortable.
 
   
- 🧼  ⑅♪⸝⸝ I do NOT ship. (Unless friend!)
+  ⑅♪⸝⸝ I do NOT ship. (Unless friend!)
  
   
-  🧼 ⋆⑅♪⸝⸝ I have freaky/adult humor.
+  ⋆⑅♪⸝⸝ I have freaky/adult humor.
 
 ------
 

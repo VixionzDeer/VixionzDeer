@@ -16,8 +16,10 @@
  ˎˊ˗ HH/HB
 
  ˎˊ˗ Homophobics
+
+ ˎˊ˗ People who constantly think you cannot be a femboy or tomboy.
  
- ♡.° ˎˊ˗ If you are in ANY of these fandoms, please stay the fuck away from me.
+ ♡.° ˎˊ˗ If you are in ANY of these fandoms, please stay the fuck away from me. (Fuck you).
 
 ---
    

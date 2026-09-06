@@ -17,7 +17,7 @@
 
  ˎˊ˗ Homophobics
 
- ˎˊ˗ People who constantly think you cannot be a femboy or tomboy.
+ ˎˊ˗ Men or Woman who think they power over eachother, women and men should be EQUAL.
  
  ♡.° ˎˊ˗ If you are in ANY of these fandoms, please stay the fuck away from me. (Fuck you).
 

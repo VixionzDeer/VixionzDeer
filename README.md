@@ -14,6 +14,8 @@
  ˎˊ˗ Problematic/Sexual fandoms.
  
  ˎˊ˗ HH/HB
+
+ ˎˊ˗ Homophobics
  
  ♡.° ˎˊ˗ If you are in ANY of these fandoms, please stay the fuck away from me.
 

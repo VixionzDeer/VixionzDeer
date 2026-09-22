@@ -34,7 +34,8 @@
 
 ----
 
-<img width="300" height="342" alt="bit my ass" src="https://github.com/user-attachments/assets/bccfa397-466f-4429-bf2c-cd2f962ed9c8" />
+<img width="302" height="258" alt="Screenshot 2026-09-21 7 11 52 PM" src="https://github.com/user-attachments/assets/e31b9516-4692-4e32-8530-193761328fb5" />
+
 
    
 -----

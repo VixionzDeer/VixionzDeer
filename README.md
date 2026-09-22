@@ -16,8 +16,6 @@
  ˎˊ˗ HH/HB
 
  ˎˊ˗ Homophobics
-
- ˎˊ˗ Men or Woman who think they power over eachother, women and men should be EQUAL.
  
  ♡.° ˎˊ˗ If you are in ANY of these fandoms, please stay the fuck away from me. (Fuck you).
 
@@ -25,7 +23,6 @@
    
  🧼 ⋆⑅♪⸝⸝ Normally a jerk to people, but most of my rude stuff said are JOKES!!  ⋆⑅♪⸝⸝
 
- 
   
    🧼 ⋆⑅♪⸝⸝ Free to INT unless otherwise said. 
 
@@ -52,11 +49,10 @@
 
 -----
 
-🧼  ⋆⑅♪⸝⸝ I am a MINOR, any sexual things said could be an joke, but do not do it to me. 
+  ⋆⑅♪⸝⸝ OTHER INFORMATION   ⋆⑅♪⸝⸝
 
-
- 🧼 ⋆⑅♪⸝⸝ Semi-Artist, Moderator of 5 different ponytown parties. (Including roleplays discords.).
- 
+I recently try to moderate most of my ponytown servers and maps. If I don't respond, please don't try again until I speak.
+If you are blacklisted in any of the rps I moderate, I will *TRY* to appeal if I can, if I can't, please accept that I cannot do anything else.
 
  Discord is Sillysilliers, only for friends.
 

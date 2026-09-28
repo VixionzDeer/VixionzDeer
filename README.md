@@ -3,21 +3,6 @@
 
 ' 𝙍𝙚𝙢𝙚𝙢𝙗𝙚𝙧 𝙩𝙝𝙚 𝙣𝙞𝙜𝙝𝙩𝙢𝙖𝙧𝙚 ?  𝙄 𝙧𝙚𝙢𝙚𝙢𝙗𝙚𝙧 𝙞𝙩, 𝙄 𝙧𝙚𝙢𝙚𝙢𝙗𝙚𝙧 𝙩𝙝𝙚 𝙣𝙞𝙜𝙝𝙩𝙢𝙖𝙧𝙚. '
 
----
-
-♡.° DNI PERSONALLY !! ₊ ˎˊ˗
-
- ˎˊ˗ Dandys world
- 
- ˎˊ˗ Forsaken (IWEC, NOT FULLY DNI)
- 
- ˎˊ˗ Problematic/Sexual fandoms.
- 
- ˎˊ˗ HH/HB
-
- ˎˊ˗ Homophobics
- 
- ♡.° ˎˊ˗ If you are in ANY of these fandoms, please stay the fuck away from me. (Fuck you).
 
 ---
    

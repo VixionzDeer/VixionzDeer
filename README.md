@@ -42,6 +42,8 @@ If you are blacklisted in any of the rps I moderate, I will *TRY* to appeal if I
 
  Discord is Sillysilliers, only for friends.
 
+ I personally don't care who you call me, I kin most of FPE, so I recommend something from FPE, or kaaatieverse. 
+
               
                           
                                            
